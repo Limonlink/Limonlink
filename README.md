@@ -28,3 +28,7 @@
 
 
 ![Nysh’s niche.gif](https://github.com/user-attachments/assets/7d75a86d-348b-4e47-a11f-8e768bc4796f)
+
+![0e0d6b0dfbfbffd2034ce2959051a58a.gif](https://github.com/user-attachments/assets/b15adbb1-f501-41ca-b6da-9eac74348ce6)
+
+
