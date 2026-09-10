@@ -1,4 +1,4 @@
-𝙂𝙊 𝘽𝙀𝙔𝙊𝙉𝘿 ✴️❇️
+2𝙂𝙊 𝘽𝙀𝙔𝙊𝙉𝘿 ✴️❇️
 
 
 
@@ -9,7 +9,13 @@
 
 ![68747470733a2f2f692e706f7374696d672e63632f4e4d4444544b424b2f696d6167652d323032342d30352d32332d3231323031393235382e706e67.png](https://github.com/user-attachments/assets/3510b5a9-094b-4d29-882a-71836a3abb64)
 
+
+
 [![846735607c3b4be922c5ece.jpg](https://i.postimg.cc/bJwpm1CT/846735607c3b4be922c5ece.jpg)](https://postimg.cc/JyvfnHWD)
+
+
+![68747470733a2f2f692e706f7374696d672e63632f78316d50357839442f696d6167652d323032342d30352d32332d3231323033303937332e706e67.png](https://github.com/user-attachments/assets/91f078da-7b65-46ac-85bf-491af7c4eb7f)
+
 
 [![b0d4ad4c9c5b70f3a622c3d088cee689.jpg](https://i.postimg.cc/g01dhN19/b0d4ad4c9c5b70f3a622c3d088cee689.jpg)](https://postimg.cc/f376njw5)
 
