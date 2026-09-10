@@ -7,7 +7,7 @@
 
 ![izuku-midoriya-deku (1).gif](https://github.com/user-attachments/assets/0db6bed6-8467-4a70-9acd-d81b1e49a297)
 
-☆⋆｡𖦹°‧★
+![68747470733a2f2f692e706f7374696d672e63632f4e4d4444544b424b2f696d6167652d323032342d30352d32332d3231323031393235382e706e67.png](https://github.com/user-attachments/assets/3510b5a9-094b-4d29-882a-71836a3abb64)
 
 [![846735607c3b4be922c5ece.jpg](https://i.postimg.cc/bJwpm1CT/846735607c3b4be922c5ece.jpg)](https://postimg.cc/JyvfnHWD)
 
