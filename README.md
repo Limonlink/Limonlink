@@ -17,14 +17,13 @@
 ![68747470733a2f2f692e706f7374696d672e63632f78316d50357839442f696d6167652d323032342d30352d32332d3231323033303937332e706e67.png](https://github.com/user-attachments/assets/91f078da-7b65-46ac-85bf-491af7c4eb7f)
 
 
-![649429115-9a248a96-d758-42e9-9321-f497daaa92d6.png](https://github.com/user-attachments/assets/491a688e-709b-458b-9270-f15624591b14)
 
 
 [![b0d4ad4c9c5b70f3a622c3d088cee689.jpg](https://i.postimg.cc/g01dhN19/b0d4ad4c9c5b70f3a622c3d088cee689.jpg)](https://postimg.cc/f376njw5)
 
 
 
-  𝑩𝑨𝑩𝒀, 𝑱𝑶𝑰𝑵 𝑴𝑬 𝑰𝑵 𝑫𝑬𝑨𝑻𝑯
+  𝑩𝑨𝑩𝒀, 𝑱𝑶𝑰𝑵 𝑴𝑬 𝑰𝑵 𝑫𝑬𝑨𝑻𝑯 💢
 
 
 
