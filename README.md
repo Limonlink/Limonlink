@@ -1,4 +1,4 @@
-𝙂𝙊 𝘽𝙀𝙔𝙊𝙉𝘿 ✴️❇️      ![97c18175-f50f-40fc-a54c-6ad36758b971.gif](https://github.com/user-attachments/assets/285193fb-5b36-4ba7-bc41-1e2acd70b544)
+𝙂𝙊 𝘽𝙀𝙔𝙊𝙉𝘿 ✴️❇️     
 
 
 
